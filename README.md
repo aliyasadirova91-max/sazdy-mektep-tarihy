@@ -1,0 +1,1 @@
+# sazdy-mektep-tarihy
